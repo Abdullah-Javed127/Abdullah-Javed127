@@ -20,6 +20,7 @@
 📫 How to reach me:
 - Email: abdullah127c@gmail.com
 - Linkedin: https://www.linkedin.com/in/abdullahjaved123
+- Portfolio: https://abdullah-javed-gamma.vercel.app/
 
 ⚡ Fun fact: 
 - I love construction machinery and airplanes. 
